@@ -1,16 +1,11 @@
 
-
+# Amir Bagheri
 ## 📌 Personal Info
 - **نام:** امیر باقری  
 - **تاریخ تولد:** 15/09/1366 – متولد تهران – متاهل  
 - **تحصیلات:**  
   - کارشناسی حسابداری  
   - کارشناسی ارشد مدیریت مالی – گرایش مالی  
-
----
-
-# Amir Bagheri
-
 📞 **+98 919 485 9227**  
 📧 **[ablove00@gmail.com](mailto:ablove00@gmail.com)**  
 🌐 **[GitHub](https://github.com/ablove00)** | **[LinkedIn](https://www.linkedin.com/in/abstudio-amir-bagheri/)**  
