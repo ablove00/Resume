@@ -6,7 +6,7 @@
 - **تحصیلات:**  
   - کارشناسی حسابداری  
   - کارشناسی ارشد مدیریت مالی – گرایش مالی  
-📞 **+98 919 485 9227**  
+📞 **9227 485 919 +98**  
 📧 **[ablove00@gmail.com](mailto:ablove00@gmail.com)**  
 🌐 **[GitHub](https://github.com/ablove00)** | **[LinkedIn](https://www.linkedin.com/in/abstudio-amir-bagheri/)**  
 
